@@ -1,1 +1,0 @@
-# hateshopping.github.io
